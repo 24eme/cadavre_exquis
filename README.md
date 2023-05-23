@@ -21,12 +21,13 @@ Dans un petit village vivait une très belle femme mais elle avait une jambe en 
 
 ## Gabriel
 
-Il était une fois, un canard sorcier. Il vivait dans une mare sous un escalier.était en effet très solitaire et triste. Malgré ses pouvoirs magiques, les autres animaux de la mare le trouvaient étrange et préféraient l'éviter. Il passait la plupart de ses journées à lire des livres de sorts, mais il aspirait secrètement à se faire des amis.
+Il était une fois, un canard sorcier. Il vivait dans une mare sous un escalier. Il était en effet très solitaire et triste. Malgré ses pouvoirs magiques, les autres animaux de la mare le trouvaient étrange et préféraient l'éviter. Il passait la plupart de ses journées à lire des livres de sorts, mais il aspirait secrètement à se faire des amis. Les jours passent mais toujours aucun amis dans les parages, il décida alors de lancer un sort à tous les animaux de la mare pour qu'ils fassent la fête tous ensemble avec du bon vin.
 
 ## Honorine
 Un beau jour d'été, une dame bronze sur sa terrasse. Cependant, un gros nuage sombre pointa le bout de son nez alors qu'elle entamait son 2ème *Sex on the beach*.
+
 ## Charlène
-J'avais mangé un hamburger et je me demandais encore si je devais prendre un dessert. Finalement, je me suis decidé et j'ai pris une glace au chocolat avec beaucoup de chantilly.
+J'avais mangé un hamburger et je me demandais encore si je devais prendre un dessert. Finalement, je me suis decidé et j'ai pris une glace au chocolat avec beaucoup de chantilly. Ce n'était pas si grave je comptais faire du sport le lendemain.
 
 ## Vincent
 
