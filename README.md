@@ -18,7 +18,7 @@ La region dans laquelle se deroule cette histoire est un endroit de calme Les pr
 ## Nicolas
 
 Le moulin orange est devant l'auberge violette sur l'eau rose de l'océan transsibérien agite par les vagues, a cause que les baleine etaient trop enervees de l'augmentation du prix des oursins.
-L'homme spectateur etait daltonien. Il ne voyait malheureusement rien des merveilles qui se presentaient sous ses yeux.
+L'homme spectateur etait daltonien. Il ne voyait malheureusement rien des merveilles qui se presentaient sous ses yeux. Mais il voyait au travers de son ouïe ultra développée.
 
 ## Fatoumata
 
