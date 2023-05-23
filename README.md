@@ -2,7 +2,7 @@
 
 Coucou
 
-Ce cours est vraiment super. Felicitation monsieur Laurent. Signe un eleve admitateur secret (c'est Tanguy).
+Ce cours est vraiment super. Félicitation monsieur Laurent. Signe un élève admirateur secret (c'est Tanguy).
 
 ## Amal
 
