@@ -8,7 +8,7 @@ Ce cours est vraiment super. Felicitation monsieur Laurent. Signe un eleve admit
 
 Ajourdh'hui, nous faisons une formation gut.
 Et c'est le bazaar. Mais malgre que c'est le bazar, je trouve que le professeur Laurent est tres patient et explique tres bien, merci monsieur Laurent.
-Mais quand même ça se passe bien
+Mais quand même ça se passe trés bien.
 
 ## Tanguy
 
