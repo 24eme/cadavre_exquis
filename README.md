@@ -13,6 +13,7 @@ La region dans laquelle se deroule cette histoire est un endroit de reve. Les pr
 Le moulin bleu est devant l'auberge violette sur l'eau rose de l'océan transsibérien.
 
 ## Fatoumata
+Dans un petit village vivait une très belle femme
 
 ## Gabriel-le
 
