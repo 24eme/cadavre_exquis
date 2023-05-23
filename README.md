@@ -7,18 +7,21 @@ Ce cours est vraiment super. Felicitation monsieur Laurent. Signe un eleve admit
 ## Amal
 
 Ajourdh'hui, nous faisons une formation gut.
-Et c'est le bazaar
-Mais quand même ça se passe bien
+Et c'est le bazaar. Mais malgre que c'est le bazar, je trouve que le professeur Laurent est tres patient et explique tres bien, merci monsieur Laurent.
+Mais quand même ça se passe trés bien.
 
 ## Tanguy
-La region dans laquelle se deroule cette histoire est un endroit de calme Les prairies sont verdoyantes gracce a la riviere qui serpente au milieu de cet endroit idyllique. Les animaux sont heureux et gambadent un peu partout, la vie y est tres douce.
+
+La region dans laquelle se deroule cette histoire est un endroit de calme Les prairies sont verdoyantes gracce a la riviere qui serpente au milieu de cet endroit idyllique. Les animaux sont heureux et gambadent un peu partout, la vie y est tres douce. C'est alors qu'une équipe de scientifique commence à faire des essaies nucléaires.
+
 ## Nicolas
 
-Le moulin orange est devant l'auberge violette sur l'eau rose de l'océan transsibérien.
+Le moulin orange est devant l'auberge violette sur l'eau rose de l'océan transsibérien agite par les vagues, a cause que les baleine etaient trop enervees de l'augmentation du prix des oursins.
 L'homme spectateur etait daltonien. Il ne voyait malheureusement rien des merveilles qui se presentaient sous ses yeux.
 
 ## Fatoumata
-Dans un petit village vivait une très belle femme mais elle avait une jambe en moins. C'était très embêtant parce que du coup, elle marchait moins bien. Heureusement, sa voisine, comme tout ses voisins d'ailleurs, avait également une seule jambe ! C'était un village d'unijambiste.
+
+Dans un petit village vivait une très belle femme mais elle avait une jambe en moins. C'était très embêtant parce que du coup, elle marchait moins bien. Heureusement, sa voisine, comme tout ses voisins d'ailleurs, avait également une seule jambe ! C'était un village d'unijambiste. C'est alors qu'elle eu l'idée d'aller dans cette région de rêve où les collines sont verdoyantes.
 
 ## Gabriel
 
