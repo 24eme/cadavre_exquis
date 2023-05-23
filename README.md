@@ -10,8 +10,10 @@ La region dans laquelle se deroule cette histoire est un endroit de reve. Les pr
 
 ## Gabriel
 
-## Honorine
+Il était une fois, un canard sorcier. Il vivait dans une mare sous un escalier.
 
+## Honorine
+Un beau jour d'été, une dame bronze sur sa terrasse.
 ## Charlène
 
 ## Vincent
