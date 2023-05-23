@@ -10,7 +10,7 @@ Ajourdh'hui, nous faisons une formation gut.
 Et c'est le bazaar
 
 ## Tanguy
-La region dans laquelle se deroule cette histoire est un endroit de reve. Les prairies sont verdoyantes gracce a la riviere qui serpente au milieu de cet endroit idyllique. Les animaux sont heureux et gambadent un peu partout, la vie y est tres douce.
+La region dans laquelle se deroule cette histoire est un endroit de calme Les prairies sont verdoyantes gracce a la riviere qui serpente au milieu de cet endroit idyllique. Les animaux sont heureux et gambadent un peu partout, la vie y est tres douce.
 ## Nicolas
 
 Le moulin orange est devant l'auberge violette sur l'eau rose de l'océan transsibérien.
@@ -30,4 +30,4 @@ J'avais mangé un hamburger et je me demandais encore si je devais prendre un de
 
 ## Vincent
 
-Il était une fois une vache qui voulait devenir un gnou mais soudain, alors qu'elle se préparait à entrer dans le Temple Kilou Kilou des Gnous Astucieux, elle tomba sur une chèvre dorée qui parlait italien et allemand. Dommage, elle ne parlait qu'espagnol.
+Il était une fois une vache qui voulait devenir un gnou mais, alors qu'elle se préparait à entrer dans le Temple Kilou Kilou des Gnous Astucieux, elle tomba sur une chèvre dorée qui parlait italien et allemand. Dommage, elle ne parlait qu'espagnol.
