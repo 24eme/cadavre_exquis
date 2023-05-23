@@ -26,4 +26,4 @@ J'avais mangé un hamburger et je me demandais encore si je devais prendre un de
 
 ## Vincent
 
-Il était une fois une vache qui voulait devenir un gnou mais soudain
+Il était une fois une vache qui voulait devenir un gnou mais soudain, alors qu'elle se préparait à entrer dans le Temple Kilou Kilou des Gnous Astucieux, elle tomba sur une chèvre dorée qui parlait italien. 
