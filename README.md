@@ -2,7 +2,7 @@
 
 Coucou
 
-Ce cours est vraiment super. Felicitation monsieur Laurent. Signe un eleve admitateur secret (c'est Tanguy).
+Ce cours est vraiment super. Félicitation monsieur Laurent. Signe un élève admirateur secret (c'est Tanguy).
 
 ## Amal
 
@@ -32,6 +32,7 @@ Il était une fois, un canard sorcier. Il vivait dans une mare sous un escalier.
 
 Un beau jour d'été, une dame bronze sur sa terrasse. Cependant, un gros nuage sombre pointa le bout de son nez alors qu'elle entamait son 2ème *Sex on the beach*.
 "Mince alors ! Moi qui voulait aller à la plage juste après" se dit-elle. Contrariée, elle déplia sa tente gonflable et alluma son barbecue à l'intérieur.
+Mais son mari, sortant de la piscine à boule, l'arrêta net ! Malheureuse, tu vas t'intoxiquer au CO² ! Prends donc ce masque à gaz ! Et il sorti de sa poche un masque à gaz datant de la 1ère guerre mondiale, relique transise de père en fils dans sa famille.
 
 ## Charlène
 
