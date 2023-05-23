@@ -14,7 +14,7 @@ Dans un petit village vivait une très belle femme
 Il était une fois, un canard sorcier. Il vivait dans une mare sous un escalier.
 
 ## Honorine
-Un beau jour d'été, une dame bronze sur sa terrasse.
+Un beau jour d'été, une dame bronze sur sa terrasse. Cependant, un gros nuage sombre pointa le bout de son nez alors qu'elle entamait son 2ème *Sex on the beach*.
 ## Charlène
 J'avais mangé un hamburger et je me demandais encore si je devais prendre un dessert.
 
