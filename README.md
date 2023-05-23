@@ -24,10 +24,12 @@ Dans un petit village vivait une très belle femme mais elle avait une jambe en 
 Il était une fois, un canard sorcier. Il vivait dans une mare sous un escalier.était en effet très solitaire et triste. Malgré ses pouvoirs magiques, les autres animaux de la mare le trouvaient étrange et préféraient l'éviter. Il passait la plupart de ses journées à lire des livres de sorts, mais il aspirait secrètement à se faire des amis.
 
 ## Honorine
-Un beau jour d'été, une dame bronze sur sa terrasse. Cependant, un gros nuage sombre pointa le bout de son nez alors qu'elle entamait son 2ème *Sex on the beach*.
+Un beau jour d'été, une dame bronze sur sa terrasse. Cependant, un gros nuage sombre pointa le bout de son nez alors qu'elle entamait son 2ème *Sex on the beach*. "Mince alors ! Moi qui voulait aller à la plage juste après" se dit-elle.
+
 ## Charlène
 J'avais mangé un hamburger et je me demandais encore si je devais prendre un dessert. Finalement, je me suis decidé et j'ai pris une glace au chocolat avec beaucoup de chantilly.
 
 ## Vincent
 
 Il était une fois une vache qui voulait devenir un gnou mais soudain, alors qu'elle se préparait à entrer dans le Temple Kilou Kilou des Gnous Astucieux, elle tomba sur une chèvre dorée qui parlait italien et allemand. Dommage, elle ne parlait qu'espagnol.
+"Hola, como te llama ? " dit la vache à la chèvre. La chèvre, regarda la vache, avec des grands yeux douteux et répondit "Guten tag ??" 
