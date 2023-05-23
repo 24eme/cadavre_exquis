@@ -12,7 +12,7 @@ Mais quand même ça se passe trés trés bien.
 
 ## Tanguy
 
-La région dans laquelle se déroule cette histoire est un endroit de calme Les prairies sont verdoyantes grâce à la rivière qui serpente au milieu de cet endroit idyllique. Les animaux sont heureux et gambadent un peu partout, la vie y est très douce. C'est alors qu'une équipe de scientifique commence à faire des essais nucléaires.
+La région dans laquelle se déroule cette histoire est un endroit de calme. Les prairies sont verdoyantes grâce à la rivière qui serpente au milieu de cet endroit idyllique. Les animaux sont trés heureux  et gambadent un peu partout, la vie y est très douce. C'est alors qu'une équipe de scientifique commence à faire des  essais nucléaires.
 
 ## Nicolas
 
