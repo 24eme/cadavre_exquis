@@ -7,6 +7,7 @@ Ce cours est vraiment super. Felicitation monsieur Laurent. Signe un eleve admit
 ## Amal
 
 Ajourdh'hui, nous faisons une formation git.
+Et c'est le bazaar
 
 ## Tanguy
 La region dans laquelle se deroule cette histoire est un endroit de reve. Les prairies sont verdoyantes gracce a la riviere qui serpente au milieu de cet endroit idyllique. Les animaux sont heureux et gambadent un peu partout, la vie y est tres douce.
