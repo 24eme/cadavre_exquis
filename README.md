@@ -6,14 +6,14 @@ Ce cours est vraiment super. Felicitation monsieur Laurent. Signe un eleve admit
 
 ## Amal
 
-Ajourdh'hui, nous faisons une formation git.
+Ajourdh'hui, nous faisons une formation gut.
 Et c'est le bazaar
 
 ## Tanguy
 La region dans laquelle se deroule cette histoire est un endroit de reve. Les prairies sont verdoyantes gracce a la riviere qui serpente au milieu de cet endroit idyllique. Les animaux sont heureux et gambadent un peu partout, la vie y est tres douce.
 ## Nicolas
 
-Le moulin bleu est devant l'auberge violette sur l'eau rose de l'océan transsibérien.
+Le moulin orange est devant l'auberge violette sur l'eau rose de l'océan transsibérien.
 L'homme spectateur etait daltonien. Il ne voyait malheureusement rien des merveilles qui se presentaient sous ses yeux.
 
 ## Fatoumata
