@@ -31,7 +31,7 @@ Il était une fois, un canard sorcier. Il vivait dans une mare sous un escalier.
 ## Honorine
 
 Un beau jour d'été, une dame bronze sur sa terrasse. Cependant, un gros nuage sombre pointa le bout de son nez alors qu'elle entamait son 2ème *Sex on the beach*.
-"Mince alors ! Moi qui voulait aller à la plage juste après" se dit-elle. Contrariée, elle déplia sa tente gonflable et alluma son barbecue à l'intérieur.
+"Mince alors ! Moi qui voulait aller à la plage juste après" se dit-elle. Contrariée, elle déplia sa tente gonflable et alluma son barbecue à l'intérieur. Nouveau Commit pour revenir à une version précédente.
 
 ## Charlène
 
