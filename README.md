@@ -14,13 +14,14 @@ La region dans laquelle se deroule cette histoire est un endroit de reve. Les pr
 
 Le moulin bleu est devant l'auberge violette sur l'eau rose de l'océan transsibérien.
 L'homme spectateur etait daltonien. Il ne voyait malheureusement rien des merveilles qui se presentaient sous ses yeux.
+Mais un beau jour il commenca à voir toutes ses merveilleuses montagnes et rivières,tout était different et si beau.
 
 ## Fatoumata
 Dans un petit village vivait une très belle femme mais elle avait une jambe en moins. C'était très embêtant parce que du coup, elle marchait moins bien.
 
 ## Gabriel
 
-Il était une fois, un canard sorcier. Il vivait dans une mare sous un escalier.était en effet très solitaire et triste. Malgré ses pouvoirs magiques, les autres animaux de la mare le trouvaient étrange et préféraient l'éviter. Il passait la plupart de ses journées à lire des livres de sorts, mais il aspirait secrètement à se faire des amis.
+Il était une fois, un canard sorcier. Il vivait dans une mare sous un escalier.était en effet très solitaire et triste. Malgré ses pouvoirs magiques, les autres animaux de la mare le trouvaient étrange et préféraient l'éviter. Il passait la plupart de ses journées à lire des livres de sorts, mais il aspirait secrètement à se faire des amis.Un jour pendant qu'il lisait ses livres il vit passer une belle petite canne avec un beau plumage doré.
 
 ## Honorine
 Un beau jour d'été, une dame bronze sur sa terrasse. Cependant, un gros nuage sombre pointa le bout de son nez alors qu'elle entamait son 2ème *Sex on the beach*.
