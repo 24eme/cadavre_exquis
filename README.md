@@ -1,6 +1,12 @@
 # Cadavre exquis
 
+Coucou
+
+Ce cours est vraiment super. Felicitation monsieur Laurent. Signe un eleve admitateur secret (c'est Tanguy).
+
 ## Amal
+
+Ajourdh'hui, nous faisons une formation git.
 
 ## Tanguy
 La region dans laquelle se deroule cette histoire est un endroit de reve. Les prairies sont verdoyantes gracce a la riviere qui serpente au milieu de cet endroit idyllique. Les animaux sont heureux et gambadent un peu partout, la vie y est tres douce.
