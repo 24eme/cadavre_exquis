@@ -35,7 +35,7 @@ Un beau jour d'été, une dame bronze sur sa terrasse. Cependant, un gros nuage 
 
 ## Charlène
 
-J'avais mangé un hamburger et je me demandais encore si je devais prendre un dessert. Finalement, je me suis decidé et j'ai pris une glace au chocolat avec beaucoup de chantilly. Et une tonne de cerise. Ce n'était pas si grave je comptais faire du sport le lendemain.
+J'avais mangé un hamburger et je me demandais encore si je devais prendre un dessert. Finalement, je me suis decidé et j'ai pris une glace au chocolat avec beaucoup de chantilly. Et une tonne de cerise. Ce n'était pas si grave je comptais faire du sport le lendemain. Aujourd'hui j'ai envie de me faire une salade avec beaucoup de légumes et une salade de fruit en dessert.
 
 ## Vincent
 
