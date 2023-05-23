@@ -18,6 +18,8 @@ La région dans laquelle se déroule cette histoire est un endroit de calme. Les
 
 Le moulin orange est devant l'auberge violette sur l'eau rose de l'océan transsibérien.
 L'homme spectateur etait daltonien. Il ne voyait malheureusement rien des merveilles qui se présentaient sous ses yeux.
+Mais un beau jour il commenca à voir toutes ses merveilleuses montagnes et rivières,tout était different et si beau.
+
 ## Fatoumata
 
 Dans un petit village vivait une très belle femme mais elle avait une jambe en moins. C'était très embêtant parce que du coup, elle marchait moins bien. Heureusement, sa voisine, comme tout ses voisins d'ailleurs, avait également une seule jambe ! C'était un village d'unijambiste. C'est alors qu'elle eu l'idée d'aller dans cette région de rêve où les collines sont verdoyantes.
