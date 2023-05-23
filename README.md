@@ -44,3 +44,4 @@ J'avais mangé un hamburger et je me demandais encore si je devais prendre un de
 
 Il était une fois une vache qui voulait devenir un gnou mais soudain, alors qu'elle se préparait à entrer dans le Temple Kilou Kilou des Gnous Astucieux, elle tomba sur une chèvre dorée qui parlait italien et allemand. Dommage, elle ne parlait qu'espagnol.
 "Hola, como te llama ? " dit la vache à la chèvre. La chèvre, regarda la vache, avec des grands yeux douteux et répondit "Guten tag ??"
+C'est une super histoire
