@@ -6,7 +6,7 @@ Ce cours est vraiment super. Felicitation monsieur Laurent. Signe un eleve admit
 
 ## Amal
 
-Ajourdh'hui, nous faisons une formation gut.
+Ajourdh'hui, nous faisons une formation git.
 Et c'est le bazaar
 
 ## Tanguy
