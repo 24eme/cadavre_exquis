@@ -8,6 +8,7 @@ Ce cours est vraiment super. Felicitation monsieur Laurent. Signe un eleve admit
 
 Ajourdh'hui, nous faisons une formation git.
 Et c'est le bazaar
+Mais quand même ça se passe bien
 
 ## Tanguy
 La region dans laquelle se deroule cette histoire est un endroit de reve. Les prairies sont verdoyantes gracce a la riviere qui serpente au milieu de cet endroit idyllique. Les animaux sont heureux et gambadent un peu partout, la vie y est tres douce.
@@ -27,6 +28,7 @@ Il était une fois, un canard sorcier. Il vivait dans une mare sous un escalier.
 Un beau jour d'été, une dame bronze sur sa terrasse. Cependant, un gros nuage sombre pointa le bout de son nez alors qu'elle entamait son 2ème *Sex on the beach*.
 ## Charlène
 J'avais mangé un hamburger et je me demandais encore si je devais prendre un dessert. Finalement, je me suis decidé et j'ai pris une glace au chocolat avec beaucoup de chantilly.
+Et une tonne de cerise.
 
 ## Vincent
 
