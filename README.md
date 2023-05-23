@@ -1,15 +1,21 @@
 # Cadavre exquis
 
+Coucou
+
 ## Amal
 
 ## Tanguy
+
 La region dans laquelle se deroule cette histoire est un endroit de reve. Les prairies sont verdoyantes gracce a la riviere qui serpente au milieu de cet endroit idyllique. Les animaux sont heureux et gambadent un peu partout, la vie y est tres douce.
+
 ## Nicolas
+
+Le moulin bleu est devant l'auberge violette sur l'eau rose de l'océan transsibérien.
 
 ## Fatoumata
 Dans un petit village vivait une très belle femme
 
-## Gabriel
+## Gabriel-le
 
 Il était une fois, un canard sorcier. Il vivait dans une mare sous un escalier.
 
