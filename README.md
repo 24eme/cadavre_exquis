@@ -19,9 +19,6 @@ La région dans laquelle se déroule cette histoire est un endroit de calme Les 
 Le moulin orange est devant l'auberge violette sur l'eau rose de l'océan transsibérien.
 L'homme spectateur etait daltonien. Il ne voyait malheureusement rien des merveilles qui se présentaient sous ses yeux.
 Mais un beau jour il commenca à voir toutes ses merveilleuses montagnes et rivières,tout était different et si beau.
-Soudainement, des vaches degringolent d'une des montagnes. Et en fait, cette montagne n'etait pas une montagne, c'etait en fait un grand geant qui s'est retourne dans son sommeil.
-On l'appellait le grand geant, car il etait plus grands que les autres geants. On l'appellait aussi Stive.
-
 
 ## Fatoumata
 
