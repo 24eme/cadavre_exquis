@@ -8,7 +8,7 @@ Ce cours est vraiment super. Felicitation monsieur Laurent. Signe un eleve admit
 
 Ajourdh'hui, nous faisons une formation gut.
 Et c'est le bazaar
-Mais quand même ça se passe bien
+Mais quand même ça se passe pas bien
 
 ## Tanguy
 La region dans laquelle se deroule cette histoire est un endroit de calme Les prairies sont verdoyantes gracce a la riviere qui serpente au milieu de cet endroit idyllique. Les animaux sont heureux et gambadent un peu partout, la vie y est tres douce.
