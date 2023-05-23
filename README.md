@@ -8,7 +8,7 @@ Ce cours est vraiment super. Felicitation monsieur Laurent. Signe un eleve admit
 
 Ajourdh'hui, nous faisons une formation git.
 Et c'est le bazaar
-Mais quand même ça se passe trés bien.
+Mais quand même ça se passe trés trés bien.
 
 ## Tanguy
 
