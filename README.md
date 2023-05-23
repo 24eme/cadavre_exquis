@@ -6,7 +6,6 @@ Ce cours est vraiment super. Felicitation monsieur Laurent. Signe un eleve admit
 
 ## Amal
 
-
 Ajourdh'hui, nous faisons une formation gut.
 Et c'est le bazaar. Mais malgre que c'est le bazar, je trouve que le professeur Laurent est tres patient et explique tres bien, merci monsieur Laurent.
 Mais quand même ça se passe trés trés bien.
@@ -28,11 +27,11 @@ Dans un petit village vivait une très belle femme mais elle avait une jambe en 
 ## Gabriel
 
 Il était une fois, un canard sorcier. Il vivait dans une mare sous un escalier.était en effet très solitaire et triste. Malgré ses pouvoirs magiques, les autres animaux de la mare le trouvaient étrange et préféraient l'éviter. Il passait la plupart de ses journées à lire des livres de sorts, mais il aspirait secrètement à se faire des amis.Un jour pendant qu'il lisait ses livres il vit passer une belle petite canne avec un beau plumage doré. Les jours passent mais toujours aucun amis dans les parages, il décida alors de lancer un sort à tous les animaux de la mare pour qu'ils fassent la fête tous ensemble avec du bon vin.
+
 ## Honorine
 
 Un beau jour d'été, une dame bronze sur sa terrasse. Cependant, un gros nuage sombre pointa le bout de son nez alors qu'elle entamait son 2ème *Sex on the beach*.
 "Mince alors ! Moi qui voulait aller à la plage juste après" se dit-elle. Contrariée, elle déplia sa tente gonflable et alluma son barbecue à l'intérieur.
-
 
 ## Charlène
 
