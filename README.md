@@ -7,6 +7,7 @@ La region dans laquelle se deroule cette histoire est un endroit de reve. Les pr
 ## Nicolas
 
 ## Fatoumata
+Dans un petit village vivait une très belle femme
 
 ## Gabriel
 
