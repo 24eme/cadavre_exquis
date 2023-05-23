@@ -11,7 +11,7 @@ Dans un petit village vivait une très belle femme
 
 ## Gabriel
 
-Il était une fois, un canard sorcier. Il vivait dans une mare sous un escalier.Il etait etait toujours triste car personne ne voulait jouer avec lui.
+Il était une fois, un canard sorcier. Il vivait dans une mare sous un escalier.était en effet très solitaire et triste. Malgré ses pouvoirs magiques, les autres animaux de la mare le trouvaient étrange et préféraient l'éviter. Il passait la plupart de ses journées à lire des livres de sorts, mais il aspirait secrètement à se faire des amis.
 
 ## Honorine
 Un beau jour d'été, une dame bronze sur sa terrasse.
