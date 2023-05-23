@@ -22,7 +22,7 @@ Mais un beau jour il commenca à voir toutes ses merveilleuses montagnes et rivi
 
 ## Fatoumata
 
-Dans un petit village vivait une très belle femme mais elle avait une jambe en moins. C'était très embêtant parce que du coup, elle marchait moins bien. Heureusement, sa voisine, comme tout ses voisins d'ailleurs, avait également une seule jambe ! C'était un village d'unijambiste. C'est alors qu'elle eu l'idée d'aller dans cette région de rêve où les collines sont verdoyantes.
+Dans un petit village vivait une très belle femme mais elle avait une jambe en moins. C'était très embêtant parce que du coup, elle marchait moins bien. Heureusement, sa voisine, comme tout ses voisins d'ailleurs, avait également une seule jambe ! C'était un village d'unijambiste. C'est alors qu'elle eu l'idée d'aller dans cette région de rêve où les collines sont verdoyantes. Quelle mauvaise idée elle eu là !
 
 ## Gabriel
 
@@ -32,6 +32,7 @@ Il était une fois, un canard sorcier. Il vivait dans une mare sous un escalier.
 
 Un beau jour d'été, une dame bronze sur sa terrasse. Cependant, un gros nuage sombre pointa le bout de son nez alors qu'elle entamait son 2ème *Sex on the beach*.
 "Mince alors ! Moi qui voulait aller à la plage juste après" se dit-elle. Contrariée, elle déplia sa tente gonflable et alluma son barbecue à l'intérieur.
+Mais son mari, sortant de la piscine à boule, l'arrêta net ! Malheureuse, tu vas t'intoxiquer au CO² ! Prends donc ce masque à gaz ! Et il sorti de sa poche un masque à gaz datant de la 1ère guerre mondiale, relique transise de père en fils dans sa famille.
 
 ## Charlène
 
