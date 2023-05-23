@@ -22,7 +22,7 @@ Mais un beau jour il commenca à voir toutes ses merveilleuses montagnes et rivi
 
 ## Fatoumata
 
-Dans un petit village vivait une très belle femme mais elle avait une jambe en moins. C'était très embêtant parce que du coup, elle marchait moins bien. Heureusement, sa voisine, comme tout ses voisins d'ailleurs, avait également une seule jambe ! C'était un village d'unijambiste. C'est alors qu'elle eu l'idée d'aller dans cette région de rêve où les collines sont verdoyantes.
+Dans un petit village vivait une très belle femme mais elle avait une jambe en moins. C'était très embêtant parce que du coup, elle marchait moins bien. Heureusement, sa voisine, comme tout ses voisins d'ailleurs, avait également une seule jambe ! C'était un village d'unijambiste. C'est alors qu'elle eu l'idée d'aller dans cette région de rêve où les collines sont verdoyantes. Quelle mauvaise idée elle eu là !
 
 ## Gabriel
 
