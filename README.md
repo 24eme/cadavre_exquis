@@ -11,6 +11,7 @@ La region dans laquelle se deroule cette histoire est un endroit de reve. Les pr
 ## Nicolas
 
 Le moulin bleu est devant l'auberge violette sur l'eau rose de l'océan transsibérien.
+L'homme spectateur etait daltonien. Il ne voyait malheureusement rien des merveilles qui se presentaient sous ses yeux.
 
 ## Fatoumata
 Dans un petit village vivait une très belle femme
